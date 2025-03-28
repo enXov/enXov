@@ -7,5 +7,5 @@
 
   i hate frontend :(
   
-  ✌️ [reach me](https://discordapp.com/users/788340005440847893)
+  ✌️ reach me: discord enx0v
 </div>
